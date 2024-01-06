@@ -10,6 +10,6 @@ Here are some ideas to get you started:
 - 👯 I’m looking to collaborate on with other data analysts , internship and volunteering.
 - 🤔 I’m looking for help with data issues
 - 💬 Ask me about my next cooking video or about data
-- 📫 How to reach me: on twitter [here](https://twitter.com/Mhizshona1)
+- 📫 How to reach me: on twitter [here](https://twitter.com/Mhizshona1) or On Linkedin [Here](www.linkedin.com/in/mhizshona)
 - ⚡ Fun fact: i love watching korean movies, am a food explorer , i also make cooking vidoes when am chanced or stressed.
 -->
